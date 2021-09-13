@@ -1,0 +1,1 @@
+# egitim-vadisi-kimya-multitest-32
